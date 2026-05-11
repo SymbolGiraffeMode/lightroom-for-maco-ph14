@@ -1,4 +1,4 @@
-
+Lightroom for macOS exclusive Addon: HDR-editing & layer-based-editing offers the most advanced Lightroom for macOS addon, with HDR-editing and layer-based-editing. Ideal for
 
 
 
